@@ -1,0 +1,1 @@
+Linking my account lamer007eth on GitHub with my address 5CPm8wFxb5ztSXBaD58oWxiUVewDmhHXdxqPExni4EqZT4uP on Substrate in mycryptoprofile.io, and the challenge code is: e7d86c914375b9852b4d97ab9620a20f. #LitentryVerifyMyAddress
